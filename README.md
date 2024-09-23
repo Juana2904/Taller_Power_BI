@@ -5,4 +5,5 @@
 
 # Taller_Power_BI_2
 [Juana Cruz Taller 2](https://drive.google.com/file/d/1j6pCb762s-zmqSizmAazK4njMsSNe33g/view?usp=share_link)
-![PHOTO-2024-09-11-10-52-26](https://github.com/user-attachments/assets/65648259-675a-4068-8c04-25ce637e82bb)
+![image](https://github.com/user-attachments/assets/3be7c6ba-ef54-4d67-9f05-5bc1001d4d0e)
+
