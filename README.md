@@ -7,3 +7,6 @@
 [Juana Cruz Taller 2](https://drive.google.com/file/d/1j6pCb762s-zmqSizmAazK4njMsSNe33g/view?usp=share_link)
 ![image](https://github.com/user-attachments/assets/3be7c6ba-ef54-4d67-9f05-5bc1001d4d0e)
 
+# Taller_Power_BI_3
+[Juana Cruz Taller 3] (https://drive.google.com/file/d/1Kn26CBGKcSULRm6ws2OqM7m9aSKw_pKZ/view?usp=sharing)
+![image](https://github.com/user-attachments/assets/70a205b7-0f4a-47f6-908e-c8ca00742bcd)
